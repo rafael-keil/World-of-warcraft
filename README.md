@@ -1,5 +1,5 @@
 ![](https://cdn.ome.lt/ztAQkeYbxnk2jh4BQJFYhK77Fi4=/1200x630/smart/extras/conteudos/world-of-warcraft_32cZI3g.jpg)
-# TCC - World of E-crescer
+# TCC - World of Warcraft
 
 ## Introdução
 
